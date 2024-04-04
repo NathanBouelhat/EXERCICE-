@@ -1,2 +1,4 @@
 # EXERCICE-
 DEVOIR A RENDRE
+[EXERCICE SEMINAIRE.pdf](https://github.com/NathanBouelhat/EXERCICE-/files/14864783/EXERCICE.SEMINAIRE.pdf)
+
